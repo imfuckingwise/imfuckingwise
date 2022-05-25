@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @imfuckingwise
+- 💼 Founder & Developer of WS
+- 📫 Discord: @wise#6666
