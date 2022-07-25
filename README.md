@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @imfuckingwise
+- 👋 我是WISE，永遠的神
 - 💼 Founder & Developer of WS
 - 📫 Discord: @wise#6666
