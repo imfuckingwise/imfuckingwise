@@ -1,3 +1,3 @@
 - 👋 我是WISE，永遠的神
-- 💼 Founder & Developer of WS
+- 💼 Founder & Developer of WS (discord.gg/worstserver)
 - 📫 Discord: @wise#6666
